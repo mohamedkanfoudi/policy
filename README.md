@@ -12,5 +12,5 @@ If you find any security vulnerability that has been inadvertently caused by me,
 
 Yours sincerely,
 Mohamed EL Kanfoudi.
-Casablanca, Moeocoo.
+Casablanca, Morocco.
 mohamedelkanfoudi2000@gmail.com
